@@ -11,22 +11,22 @@
 https://fastlink.ws/auth/register?code=je8N
 
 
-2）全IPLC 3GBps 港台美日新，全部原生IP，带宽满速，实打实流量机场。
+2）高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
 https://bywave.io/aff.php?aff=5106
 
 
-3）350+节点的全中转大机场，特殊时期稳定且高速，月最低9.9。
+3）400+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 
-https://suying555.net/auth/register?code=lPWj
+https://jike0.com/auth/register?code=PoNd
 
 
-4）150+节点的全中转大机场，特殊时期稳定且高速，月最低9.9。
+4）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 
 https://youyun555.net/auth/register?code=fDPg
 
 
-5）独家支持Torjan,IPLC,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度，提供高速稳定中继服务，AEAD算法保证安全。
+5）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西，提供高速稳定中继服务，AEAD算法保证安全。
 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！
 含多条回国线路，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。
 提供Netflix，Pornhub，HBONOW，Hulu美区，Hulu日区，PrimeVideo港区，PrimeVideo日区等网站的最高等级账号白漂。
@@ -35,7 +35,7 @@ https://www.mielink.cc/register?aff=1GTFR6
 
 
 6）全中转大机场，100+节点，包括港、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，4K不卡，8K流畅。
-   流媒体全解锁，并且提供Netflix账户共享，注册即可白嫖3天5G流量。月最低6块。
+   流媒体全解锁，并且提供Netflix,prohub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
 
 https://maoxiong.cloud/auth/register?code=PnFg
 
