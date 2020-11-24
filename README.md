@@ -35,7 +35,7 @@ https://www.mielink.cc/register?aff=1GTFR6
 
 
 6）全中转大机场，100+节点，包括港、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，4K不卡，8K流畅。
-   流媒体全解锁，并且提供Netflix,prohub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
+   流媒体全解锁，并且提供Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
 
 https://maoxiong.cloud/auth/register?code=PnFg
 
