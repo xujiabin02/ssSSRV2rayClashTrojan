@@ -16,8 +16,7 @@ https://maoxiong.cloud/auth/register?code=PnFg
 
 https://taggood-2.xyz/auth/register?code=Kz2o
 
-4）高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。
-    月付最低9块9，现在注册即可获得85折优惠券一张。
+4）高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。 月付最低六块钱，现在注册即送六折六折六折优惠券。
 
 https://dashboard.coco355.com/user/register?code=nRFw
 
