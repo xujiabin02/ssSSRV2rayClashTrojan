@@ -20,9 +20,9 @@ https://taggood-2.xyz/auth/register?code=Kz2o
 
 https://dashboard.coco355.com/user/register?code=nRFw
 
-5）全SSR大机场，原生IP，不限速，节点包括港，台，美，日，新，俄，加拿大，德国，印度，土耳其，澳大利亚，韩国，流媒体解锁，并且提供Netflix会员白嫖。
+5）高端大机场，原生IP，不限速，节点包括港，台，美，日，新，俄，英国，土耳其，澳大利亚，流媒体解锁。
 
-https://go.6201170.xyz/aff/?code=xpkd
+https://portal.symerit.org/aff.php?aff=32
 
 6）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点
 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
