@@ -24,10 +24,9 @@ https://miaona.xyz/#/register?code=THJhkGg7
 
 https://dashboard.coco355.com/user/register?code=nRFw
 
-6）全中转线路大机场，包括港、台、美、日、新、韩，英，印度，加拿大，德国 等原生节点，4K不卡，8K流畅。有回国节点可以单独开通。 流媒体全解锁，并且提供Netflix,Hulu高级会员账户共享，注册即送5G，低至6.9/月，稳定油管8K，解锁奈飞/HBO/Hulu等，跨国企业、跨境电商、国际新闻媒体工作者等非个人用户，可客服获取大单客户专享优惠价。
-注册即可白嫖免费节点。
+6）无视特殊时期封禁和干扰，稳定奔放，晚高峰8K秒开，节点包括，港，台，美，日，新，韩，三网优化。提供Netflix共享，现在注册，所有套餐7折优惠，月付最低 2 块，免费节点无需付费每天签到即可白嫖。
 
-https://klee.icu/auth/register?code=Wk7m
+https://catcloud.fun/auth/register?code=o5ha
 
 7）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点
 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
