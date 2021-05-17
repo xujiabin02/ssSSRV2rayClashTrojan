@@ -56,7 +56,7 @@ https://tigercloud.club/#/register?code=OLPvTSuu
 
 13）高质量网络线路，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，土耳其，英国，荷兰等，最低 2块起。
 
-https://www.franxx.cloud/auth/register?code=rF9r
+https://www.franxx.cloud/auth/register?code=KCvL
 
 14）高质量大型机场，稳定高速，原生IP，解锁流媒体。最低 8块钱。
 
