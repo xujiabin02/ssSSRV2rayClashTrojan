@@ -14,9 +14,9 @@ https://shuttle.onl/aff.php?aff=32
 
 3）全中转大机场，100+节点，包括港、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，沙特阿拉伯等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
 
-https://猫熊.xyz/auth/register?code=PnFg
+https://www.猫熊.xyz/auth/register?code=PnFg
 
-4）全大陆中转SSR大机场，原生IP，节点包括港，台，美，日，新，俄，泰国，加拿大，印尼，印度，以色列，法国，匈牙利，捷克，澳大利亚，澳门，英国，荷兰，瑞士, 菲律宾，越南，阿根廷，韩国，马来西亚，瑞士，乌克兰，智利，南非，阿塞拜疆，巴基斯坦，新西兰，奥地利，希腊等。 陆续会添加全球共50个国家及地区的原生IP节点，真正的原生IP，解锁当地流媒体，相当于周游世界了。特殊时期高速稳定，倍率低不限速。
+4）全大陆中转SSR大机场，原生IP，节点包括港，台，美，日，新，俄，泰国，加拿大，印尼，印度，以色列，法国，匈牙利，捷克，澳大利亚，澳门，英国，荷兰，瑞士, 瑞典，菲律宾，越南，阿根廷，韩国，马来西亚，乌克兰，巴西，智利，南非，埃及，阿塞拜疆，哈萨克斯坦，巴基斯坦，新西兰，奥地利，希腊，蒙古国，保加利亚，白俄罗斯，马恩岛，秘鲁等。 陆续会添加全球共50个国家及地区的原生IP节点，真正的原生IP，解锁当地流媒体，相当于周游世界了。特殊时期高速稳定，倍率低不限速。
 
 https://taggood-3.xyz/auth/register?code=Kz2o
 
@@ -24,49 +24,50 @@ https://taggood-3.xyz/auth/register?code=Kz2o
 
 https://miaona.xyz/#/register?code=THJhkGg7
 
-6）高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。 月付最低六块钱，现在注册即送六折六折六折优惠券。
+6）全中转高速BGP G口高端机场，有专属 emby 服务器可看片，节点包括港，台，美，日，新加坡，泰国，英国，韩国，俄罗斯，印度，土耳其。原生IP，当地流媒体解锁，带宽跑起来 8K 无压力。
 
-https://dashboard.coco355.com/user/register?code=nRFw
+https://portal.siseed.io/#/register?code=8hYNX2VS
 
+7）高速BGP低延时节点，极速4K秒开，流媒体解锁，共享Netflix 4K超清会员，畅快体验NETFLIX/HBO/ HULU等。节点包括，港，台，美，日，韩，新加坡。每月都有折扣。
 
-7）无视特殊时期封禁和干扰，稳定奔放，晚高峰8K秒开，节点包括，港，台，美，日，新，韩，三网优化。提供Netflix共享，现在注册，所有套餐7折优惠，月付最低 2 块，免费节点无需付费每天签到即可白嫖。
+https://mclou.ga/auth/register?code=MnGe
 
-https://catcloud.shop/auth/register?code=o5ha
-
-8）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
-
-https://fastlink.ws/auth/register?code=je8N
-
-9）高质量V2ray机场,低至11.8元/月，秒开4K 稳定油管8K，，节点包括港，台，美，日，新加坡，俄罗斯，土耳其，以色列，荷兰，阿根廷，爱沙尼亚，澳大利亚，印度，曼谷等，解锁Netflix/HBO/Hulu等流媒体。
+8）高质量V2ray机场,低至11.8元/月，秒开4K 稳定油管8K，，节点包括港，台，美，日，新加坡，俄罗斯，土耳其，以色列，荷兰，阿根廷，爱沙尼亚，澳大利亚，印度，曼谷等，解锁Netflix/HBO/Hulu等流媒体。
    微信:A51fq99 QQ:669751606 官方客服，服务有保障。
 
 https://panel.tigercloud.club/#/register?code=OLPvTSuu
 
-10）高质量网络线路，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，土耳其，英国，荷兰等，最低 2块起。
+9）高质量网络线路，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，土耳其，英国，荷兰等，最低 2块起。
 
-https://www.franxx.cloud/auth/register?code=KCvL
+https://www.franxx.codes/auth/register?code=Yph3
 
-11）老牌高端大机场，全大陆BGP中继，智能接入分配，最高2Gpbs带宽，节点包括，港，台，美，日，新加坡，韩，加拿大，悉尼，印度，马来西亚等，快到飞起。
+10）高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。 月付最低六块钱，现在注册即送85折优惠券。
 
-https://www.oxygenplaza.net/signupbyemail.aspx?MemberCode=cf1550422b334f9ba27218150e7339d620210520211627
+https://dashboard.coco355.com/user/register?code=nRFw
 
-12）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+11）全Trojan协议专线，无视特殊时期封禁和干扰，稳定奔放，晚高峰8K秒开，节点包括，港，台，美，日，新，韩，三网优化。提供Netflix共享，现在注册，所有套餐7折优惠，月付最低 2 块，免费节点无需付费每天签到即可白嫖。
+
+https://catcloud.shop/auth/register?code=o5ha
+
+12）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
+
+https://fastlink.ws/auth/register?code=je8N
+
+13）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 
 https://jike138.net/auth/register?code=PoNd
 
-13）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+14）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 
 https://youyun222.net/auth/register?code=fDPg
 
-14）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+15）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 
 https://suying222.net/auth/register?code=lPWj
 
-15）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西，提供高速稳定中继服务，AEAD算法保证安全。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ 含多条回国线路，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。 提供youtube,Netflix，Pornhub，HBONOW，Hulu美区，Hulu日区等网站的最高等级账号白漂。
+16）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西，提供高速稳定中继服务，AEAD算法保证安全。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ 含多条回国线路，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。 提供youtube,Netflix，Pornhub，HBONOW，Hulu美区，Hulu日区等网站的最高等级账号白漂。
 
-https://www.mielink.com/register?aff=1GTFR6
-
-
+http://mielink-invite.com/register?aff=1GTFR6
 
 
 注册就送会10G流量，提供三十个免费节点，看YouTube 1080P视频是没问题的。每天签到会赠送1-5G流量，一个月大概就是50-150G流量赠送。很良心了！ 如果想要更高速节点，YouTube 8K ,NetFlix 4K体验，体验BGP中转，trojan，UC，Azure，Dmit，HKT，Hinet，多点IPLC节点（打游戏专属），每月仅需9.9块钱就有100G流量，不限速，同样可以签到获取流量，也就是每个月200G流量了，妥妥的。节点包括港台美日土耳其巴西澳大利亚德国英国等欧洲大部分国家，新用户也可以免费试用，支持ssr，v2ray,clash,trojan客户端，安卓，iOS，MAC，Windows，Linux全系统支持。有任何问题都可以在群里反馈，群主和群友都会解答。 现在注册话，就有年费VIP 8折优惠，不花钱免费使用也不错。
