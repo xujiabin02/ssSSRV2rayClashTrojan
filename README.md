@@ -30,7 +30,7 @@ https://panel.tigercloud.club/#/register?code=OLPvTSuu
 
 7）高质量trojan网络线路，对抗封锁，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，波兰，土耳其，英国，荷兰，印度尼西亚，马来西亚，越南等，解锁Netflix，Disney+，DAZN等流媒体。最低 2块起。
 
-https://www.franxx.codes/auth/register?code=Yph3
+https://www.franxx.cloud/auth/register?code=Yph3
 
 8）全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
 
@@ -54,7 +54,7 @@ http://mielink-invite.com/register?aff=1GTFR6
 
 13）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
-https://jike138.net/auth/register?code=PoNd
+https://jike.ph/auth/register?code=PoNd
 
 14）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
