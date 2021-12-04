@@ -32,9 +32,10 @@ https://portal.siseed.io/#/register?code=8hYNX2VS
 
 https://panel.tigercloud.club/#/register?code=OLPvTSuu
 
-8）高质量trojan网络线路，对抗封锁，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，波兰，土耳其，英国，荷兰，印度尼西亚，马来西亚，越南等，解锁Netflix，Disney+，DAZN等流媒体。最低 2块起。
+8）SS协议全AIA专线，8线BGP入口，全球内网，全地区流媒体解锁，低延迟、高速、稳定不会被墙。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其等。遍布全球。
 
-https://www.franxx.cloud/auth/register?code=Yph3
+https://ssltd.xyz/#/register?code=DWZDIVnj
+
 
 9）全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
 
@@ -44,9 +45,8 @@ https://yuansu.app/#/mSu6LmgG
 
 https://miaona.xyz/#/register?code=THJhkGg7
 
-11）高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。 月付最低六块钱，现在注册即送85折优惠券。
-
-https://dashboard.coco355.com/user/register?code=nRFw
+11）100+节点高端稳定大机场，纯流量计费机场，不限时间，不限设备，节点包括，港，台，美，日，新加坡，印度，韩国等。注册即可免费试用三天。
+https://teacat.cloud/#/register?code=Em7fBtp9
 
 12）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
 
