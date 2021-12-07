@@ -69,7 +69,7 @@ https://youyun222.net/auth/register?code=fDPg
 https://suying222.net/auth/register?code=lPWj
 
 
-Disney+，hulu，netflix，HBO，ESPN+，plex.tv，Apple TV+，Britbox，Paramount+，Shudder恐怖电影，Boomerang，Peacock tv，Showtime，Starz，MLB tv all team等各种流媒体会员合租，spotify，Apple Music，Tidal Hifi 等各种音乐会员合租，还有office365，AppleID，礼品卡虚拟卡。关注tg频道，时不时的还能白嫖各种流媒体会员，机场，共享账号，4K视频资源等福利。购买之后直接联系客服，人齐发车，现做现开，全程质保
+Disney+，hulu，netflix，HBO，ESPN+，plex.tv，Apple TV+，Britbox，Paramount+，Shudder恐怖电影，Boomerang，Peacock tv，Showtime，Starz，MLB tv all team等各种流媒体会员合租，spotify，Apple Music，Tidal Hifi 等各种音乐会员合租，还有office365，AppleID，礼品卡虚拟卡。关注tg频道，时不时的还能白嫖各种流媒体会员，机场，共享账号，4K视频资源等福利。购买之后直接联系客服，人齐发车，现做现开，全程质保。
 
 https://store.moccanetwork.com/aff.php?aff=91
 
