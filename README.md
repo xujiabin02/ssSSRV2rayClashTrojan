@@ -1,6 +1,6 @@
 # 自由上网，科学上网，翻墙机场推荐
 
-自己用了大半年的机场分享一下：
+自己用了好几年的机场分享一下：
 
 可以白嫖，永久免费，全环境支持。
 
@@ -20,7 +20,7 @@ https://mxwljsq.com/auth/register?code=LkNG
 
 https://taggood-4.xyz/auth/register?code=Kz2o
 
-5）全IPLC，SS协议AIA专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦等。全地区流媒体解锁，低延迟、高速、稳定不会被墙。如丝般顺滑。
+5）全IPLC，SS协议AIA专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦等。全地区流媒体解锁，低延迟、高速、稳定不会被墙。如丝般顺滑。
 
 https://ssltd.xyz/#/register?code=DWZDIVnj
 
@@ -52,26 +52,25 @@ https://miaona.xyz/#/register?code=THJhkGg7
 
 https://fastlink.la/auth/register?code=je8N
 
-13）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西，提供高速稳定中继服务，AEAD算法保证安全。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ 含多条回国线路，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。 提供youtube,Netflix，Disney+，Pornhub等网站的最高等级账号白漂。
+13）高端原生国际大机场，节点包括，港，台，美，日，韩，新加坡，加拿大，印度，印度尼西亚，土耳其，墨西哥，德国，法国，澳大利，瑞典，英国，荷兰，菲律宾等。流媒体全解锁，高峰时期流畅不卡顿，特殊时期稳定不断流，注册后有公益节点供用户白嫖，另外新用户注册即可享受八折优惠，八折优惠码：itami
+
+https://web.itami.casacam.net/auth/register?code=xkPa
+
+14）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/泰国/印度尼西亚/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西/阿根廷，提供高速稳定中继服务。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ 含多条“回国线路”，可购买回国套餐，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。 提供APPID美区账号，youtube,Netflix，Disney+，Pornhub等网站的最高等级账号白漂。在线客服及时答疑。
 
 http://mielink-invite.com/register?aff=1GTFR6
 
-14）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
+15）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://jike.ph/auth/register?code=PoNd
 
-15）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
+16）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://youyun222.net/auth/register?code=fDPg
 
-16）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
+17）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://suying222.net/auth/register?code=lPWj
-
-
-Disney+，hulu，netflix，HBO，ESPN+，plex.tv，Apple TV+，Britbox，Paramount+，Shudder恐怖电影，Boomerang，Peacock tv，Showtime，Starz，MLB tv all team等各种流媒体会员合租，spotify，Apple Music，Tidal Hifi 等各种音乐会员合租，还有office365，AppleID，礼品卡虚拟卡。关注tg频道，时不时的还能白嫖各种流媒体会员，机场，共享账号，4K视频资源等福利。购买之后直接联系客服，人齐发车，现做现开，全程质保。
-
-https://store.moccanetwork.com/aff.php?aff=91
 
 
 ******************************************************************************************************************************************************************************
