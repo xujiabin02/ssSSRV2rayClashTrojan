@@ -20,7 +20,7 @@ https://mxwljsq.com/auth/register?code=LkNG
 
 https://taggood-4.xyz/auth/register?code=qppc
 
-5）全IPLC，SS协议AIA专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦等。全地区流媒体解锁，低延迟、高速、稳定不会被墙。如丝般顺滑。
+5）全IPLC，SS协议国际专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦等。全地区流媒体解锁，低延迟、高速、稳定不会被墙。如丝般顺滑。
 
 https://ssltd.xyz/#/register?code=DWZDIVnj
 
