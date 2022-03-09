@@ -64,7 +64,7 @@ https://ss.mba/#/register?code=tRvFN2H5
 
 https://www.flyss.xyz/#/register?code=080fkpYh
 
-2）原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁，月最低11.9
+2）原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁，月最低11.9。
 
 https://xrayport.net/#/register?code=oPPOntee
 
