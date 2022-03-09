@@ -64,9 +64,9 @@ https://ss.mba/#/register?code=tRvFN2H5
 
 https://www.flyss.xyz/#/register?code=080fkpYh
 
-2）原生国际大机场，节点包括，港，台，美，日，韩，新加坡，加拿大，印度，印度尼西亚，土耳其，墨西哥，德国，法国，澳大利，瑞典，英国，荷兰，菲律宾等。流媒体全解锁，高峰时期流畅不卡顿，特殊时期稳定不断流，注册后有公益节点供用户白嫖，另外新用户注册即可享受八折优惠，八折优惠码：itami，月最低 3.9 块。
+2）原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁，月最低11.9
 
-https://web.itami.casacam.net/auth/register?code=xkPa
+https://xrayport.net/#/register?code=oPPOntee
 
 3）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
