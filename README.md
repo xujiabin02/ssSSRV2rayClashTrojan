@@ -47,11 +47,7 @@ https://ss.mba/#/register?code=tRvFN2H5
 
 https://ivt.yuansu.app/mSu6LmgG
 
-5）全中转高速BGP G口高端机场，有专属 emby 服务器可看片，IPLC/IEPL专线承载，可保证无Qos.节点包括港，台，美，日，新加坡，泰国，英国，韩国，俄罗斯，印度，越南，土耳其。原生IP，当地流媒体解锁，带宽跑起来 8K 无压力。
-
-https://portal.siseed.io/#/register?code=8hYNX2VS
-
-6）多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
+5）多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
 https://bywave.art/aff.php?aff=5106
 
