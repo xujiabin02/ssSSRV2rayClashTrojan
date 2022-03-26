@@ -43,7 +43,7 @@ https://xrayport.net/#/register?code=oPPOntee
 
 https://ss.mba/#/register?code=tRvFN2H5
 
-4全大陆多点中转大机场，不限速，节点包括，港，澳，台，美，日，新加坡，韩国，越南，俄罗斯，印度，芬兰，卢森堡，乌克兰，英国，德国。流媒体全解锁，家宽节点体验更好。特殊时期依然稳定高速。
+4）全大陆多点中转大机场，不限速，节点包括港，澳，台，美，日，新加坡，韩国，越南，俄罗斯，印度，芬兰，卢森堡，乌克兰，英国，德国。流媒体全解锁，家宽节点体验更好。特殊时期依然稳定高速。
 
 https://maoport.com/#/register?code=eHkasDlv
 
