@@ -32,7 +32,7 @@ https://bit.ly/3sKPels
 https://bit.ly/3s1lLmK
 
 6）<b>[Bywave](https://bit.ly/3F45i6A11)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多年老牌机场，全IPLC 5G口带宽，节点包括港，台，美，日，新加坡，韩国，英国，原生IP，带宽跑满速，实打实流量机场，有流量包套餐。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多年老牌机场，全IPLC 5G口带宽，节点包括港，台，美，日，新加坡，韩国，英国，原生IP，带宽跑满速，Netflix/Disney+/Hulu/DAZN 等流媒体全解锁，实打实流量机场，有流量包套餐。</p>
 
 https://bit.ly/3F45i6A11
 
