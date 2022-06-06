@@ -133,12 +133,12 @@ What else?
 3）<b>[英国Giffgaff实体电话卡]()</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合接收短信，注册网站这种场景，打电话，上网资费都比较贵。无需实名。</p>
   
-   (Giffgaff卡) https://www.giffgaff.com/
+   (Giffgaff卡) https://www.giffgaff.com
    
 4）<b>[菲律宾Globe实体电话卡]()</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合接收短信，注册网站这种场景，打电话，上网资费都比较贵。一般用来买SPotify会员，注册菲律宾版支付宝Gcash等特殊用途，无需实名。</p>
 
-   (Globe卡) https://www.globe.com.ph/
+   (Globe卡) https://www.globe.com.ph
 
 
 ******************************************************************************************************************************************************************************
