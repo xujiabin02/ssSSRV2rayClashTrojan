@@ -46,10 +46,10 @@ https://bit.ly/3F45i6A11
 
 https://bit.ly/3GJyTmW
 
-2）<b>[prprCloud]([https://bit.ly/3thvfek](https://prpr.96110.cn.com/aff.php?aff=9530))</b>
+2）<b>[prprCloud](https://prpr.96110.cn.com/aff.php?aff=9530)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高速稳定的全球中继网络服务，畅游全球大机场，全球流媒体解锁，节点包括，港，台，美，日，新加坡，印度，韩国，菲律宾，俄罗斯，乌克兰，土耳其，马来西亚，泰国，巴基斯坦，卢森堡，南非，阿联酋，阿根廷，澳大利亚，巴西，法国等。提供emby专属服务，价格低至10元/月。</p>
-[
-https://bit.ly/3thvfek](https://prpr.96110.cn.com/aff.php?aff=9530)
+
+https://prpr.96110.cn.com/aff.php?aff=9530
 
 3）<b>[XrayPort](https://bit.ly/38FaNfS)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块。</p>
