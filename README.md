@@ -11,30 +11,25 @@
 
 https://bit.ly/3OIkEm1
 
-2）<b>[Godetia](https://bit.ly/3ONejFO)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全G口IPLC，SS协议国际不过墙专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦，马来西亚等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等解锁，低延迟、高速。如丝般顺滑。畅游海外。</p>
-
-https://bit.ly/3ONejFO
-
-3）<b>[FastLink](https://bit.ly/3y7Uy5R)</b>
+2）<b>[FastLink](https://bit.ly/3y7Uy5R)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm</p>
 
 https://bit.ly/3y7Uy5R
 
-4）<b>[Gatern](https://bit.ly/3MgvUDy)</b>
+3）<b>[Gatern](https://bit.ly/3MgvUDy)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有流量包套餐。</p>
 
 https://bit.ly/3MgvUDy
 
-5）<b>[Bywave](https://bit.ly/3F45i6A11)</b>
+4）<b>[Bywave](https://bit.ly/3F45i6A11)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多年老牌机场，全IPLC 5G口带宽，节点包括港，台，美，日，新加坡，韩国，英国，原生IP，带宽跑满速，Netflix/Disney+/Hulu/DAZN 等流媒体全解锁，实打实流量机场，有流量包套餐。</p>
 
 https://bit.ly/3F45i6A11
 
-6）<b>[Nerwo-Nerworks](https://bit.ly/3sKPels)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全SS/SSR/Trojan多协议大机场，原生IP，不限速，节点包括港，台，美，日，新加坡，俄罗斯，加拿大，澳大利亚，英国，德国，印度，印度尼西亚，土耳其，澳大利亚，韩国，泰国，迪拜，菲律宾，荷兰，波兰，罗马尼亚，意大利，阿根廷土耳其，巴西，瑞典，瑞士，智利，沙特阿拉伯，比利时，乌克兰，以色列，南非，尼日利亚等遨游全球，流媒体全解锁。并且提供韩国APPID，pornhub会员，TG代理白嫖。特殊时期稳定不受影响。</p>
+5）<b>[Ytoo](https://bit.ly/3NV5Rm3)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全专线IEPL高速稳定大机场，节点包括，港，澳，台，美，日，新，韩，加拿大，俄罗斯，西班牙，匈牙利，德国，英国，法国，荷兰，澳大利亚，巴西，泰国，越南，印度，印度尼西亚，菲律宾，意大利，巴基斯坦，阿根廷，土耳其，以色列，乌克兰，迪拜等。全球流媒体全解锁。广州、上海、北京华为云BGP入口，分别走深港专线、沪日专线、京德专线过境。难得的广州上海北京华为入口凑齐的机场。速度、稳定性、流媒体都没话说。</p>
 
-https://bit.ly/3sKPels
+https://bit.ly/3NV5Rm
 
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
@@ -51,27 +46,17 @@ https://bit.ly/3GJyTmW
 
 https://prpr.96110.cn.com/aff.php?aff=9530
 
-3）<b>[Ytoo](https://bit.ly/3NV5Rm3)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全专线IEPL高速稳定大机场，节点包括，港，澳，台，美，日，新，韩，加拿大，俄罗斯，西班牙，匈牙利，德国，英国，法国，荷兰，澳大利亚，巴西，泰国，越南，印度，印度尼西亚，菲律宾，意大利，巴基斯坦，阿根廷，土耳其，以色列，乌克兰，迪拜等。全球流媒体全解锁。广州、上海、北京华为云BGP入口，分别走深港专线、沪日专线、京德专线过境。难得的广州上海北京华为入口凑齐的机场。速度、稳定性、流媒体都没话说。</p>
-
-https://bit.ly/3NV5Rm3
-
-4）<b>[WestData](https://bit.ly/3IALOIH)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;华为云入口全中转高速大机场，广港，沪日，京德专线全中转，Kirino，Oracle落地，节点包括港，台，美，日，新加坡，加拿大，英国，德国，巴西，意大利，荷兰，土耳其，澳大利亚，以色列，韩国，菲律宾，迪拜，印度，泰国，南非等，全球流媒体解锁。特殊时期稳定坚挺不爆炸，是不可多得的北上广入口的全中转大机场。</p>
-
-https://bit.ly/3IALOIH
-
-5）<b>[TapFog](https://bit.ly/3uDY8lT)</b>
+3）<b>[TapFog](https://bit.ly/3uDY8lT)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。</p>
 
 https://bit.ly/3uDY8lT
 
-6）<b>[strayCloud](https://bit.ly/3xPsWSn)</b>
+4）<b>[strayCloud](https://bit.ly/3xPsWSn)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全IEPL/IPLC高端ss+trojan协议大机场，全球流媒体解锁，节点包括，港，台，美，日，新加坡，韩国，俄罗斯，阿根廷，土耳其，越南，印度，加拿大，英国，荷兰，德国。高速稳定硬刚墙。</p>
 
 https://bit.ly/3xPsWSn
 
-7）<b>[keleCloud](https://bit.ly/3OdbzAr)</b>
+5）<b>[keleCloud](https://bit.ly/3OdbzAr)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;原生高速稳定ss+trojan大机场，多地区1000M入口接入，Netflix，动画疯，HBO，Disney+等流媒体全解锁，节点包括，港，台，美，日，新加坡，俄罗斯，泰国，土耳其，英国等。不限制客户端数量，全平台支持，也不限速。</p>
 
 https://bit.ly/3OdbzAr
@@ -91,30 +76,20 @@ https://bit.ly/3ugbftg
 
 https://bit.ly/3PrYp3N
 
-3）<b>[极客云](https://bit.ly/3aBhPmV)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，节点包括，港，台，美，日，新加坡，俄罗斯，德国等，特殊时期稳定且高速，月最低13.9。</p>
+3）<b>[Teacat](https://bit.ly/3MDu68f)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。注册即可免费试用三天。</p>
 
-https://bit.ly/3aBhPmV
-
-4）<b>[优云666](https://bit.ly/3MHxRK0)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，节点包括，港，台，美，日，新加坡，俄罗斯等，特殊时期稳定且高速，月最低13.9。</p>
-
-https://bit.ly/3MHxRK0
-
-5）<b>[速鹰666](https://bit.ly/3F522s0)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，节点包括，港，台，美，日，新加坡，俄罗斯等，特殊时期稳定且高速，月最低13.9。</p>
-
-https://bit.ly/3F522s0
+https://bit.ly/3MDu68f
 
 **************************************************  初  级  机  场  区  *******************************************************
 **************************************************  特  殊  机  场  区  *******************************************************
 
 所谓特殊的含义：稳定，高速，拥有大多数机场没有的特点，或者优势。
 
-1）<b>[Teacat](https://bit.ly/3MDu68f)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;100+节点高端稳定大机场，“纯流量”计费机场，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。注册即可免费试用三天。</p>
+1）<b>[WestData](https://bit.ly/3IALOIH)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;华为云入口全中转高速大机场，广港，沪日，京德专线全中转，Kirino，Oracle落地，节点包括港，台，美，日，新加坡，加拿大，英国，德国，巴西，意大利，荷兰，土耳其，澳大利亚，以色列，韩国，菲律宾，迪拜，印度，泰国，南非等，全球流媒体解锁。特殊时期稳定坚挺不爆炸，是不可多得的北上广入口的全中转大机场。</p>
 
-https://bit.ly/3MDu68f
+https://bit.ly/3IALOIH
 
 2）<b>[MieLink 羊圈](https://bit.ly/3OPbAvk)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/泰国/印度尼西亚/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西/阿根廷，提供高速稳定中继服务。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ </p>
@@ -133,27 +108,12 @@ What else?
 
 机场再多也不是100%保险，如果想不受特殊时期的影响，完全避免机场跑路，节点炸掉，机场被打等等风险，推荐自备一张境外流量卡，以下是一些卡片推荐，可能不是最实惠的，不是最适合你的，但却是你需要的，所有的卡既可以亲自海淘进行购买，也可以去某宝上直接购买：
 
-1）<b>[澳门电信一卡两号红蓝卡]()</b>
+<b>[澳门电信一卡两号红蓝卡]()</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合在中国大陆，中国香港，中国澳门三地，打电话，发短信，访问外网，可做流量卡直接合法翻墙，但是需实名制。</p>
 
    （Easy+预付卡，俗称红卡）https://www.1888.com.mo/help/detail?tabCode=EASYPLUS
    
    （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
-   
-2）<b>[美国UltraMobile实体电话卡]()</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;在开启WifiCalling的情况下，可免费拨打全球80个国家和地区的电话，适合全球漫游打电话，发短信，访问风控严重需要稳定IP的网站，比如美国银行等，不建议做流量卡，因为流量费很贵很贵。无需实名。</p>
-  
-   (有月租3刀Paygo神卡，以及橙卡和Travel卡) https://www.ultramobile.com
-   
-3）<b>[英国Giffgaff实体电话卡]()</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合接收短信，注册网站这种场景，打电话，上网资费都比较贵。无需实名。</p>
-  
-   (Giffgaff卡) https://www.giffgaff.com
-   
-4）<b>[菲律宾Globe实体电话卡]()</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合接收短信，注册网站这种场景，打电话，上网资费都比较贵。一般用来买SPotify会员，注册菲律宾版支付宝Gcash等特殊用途，无需实名。</p>
-
-   (Globe卡) https://www.globe.com.ph
 
 
 ******************************************************************************************************************************************************************************
