@@ -26,7 +26,12 @@ https://bit.ly/3MgvUDy
 
 https://bit.ly/3F45i6A11
 
-5）<b>[Ytoo](https://bit.ly/3NV5Rm3)</b>
+5）<b>[Godetia](https://bit.ly/3ONejFO)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全G口IPLC，SS协议国际不过墙专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦，马来西亚等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等解锁，低延迟、高速。如丝般顺滑。畅游海外。</p>
+
+https://bit.ly/3ONejFO
+
+6）<b>[Ytoo](https://bit.ly/3NV5Rm3)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全专线IEPL高速稳定大机场，节点包括，港，澳，台，美，日，新，韩，加拿大，俄罗斯，西班牙，匈牙利，德国，英国，法国，荷兰，澳大利亚，巴西，泰国，越南，印度，印度尼西亚，菲律宾，意大利，巴基斯坦，阿根廷，土耳其，以色列，乌克兰，迪拜等。全球流媒体全解锁。广州、上海、北京华为云BGP入口，分别走深港专线、沪日专线、京德专线过境。难得的广州上海北京华为入口凑齐的机场。速度、稳定性、流媒体都没话说。</p>
 
 https://bit.ly/3NV5Rm
@@ -47,7 +52,7 @@ https://bit.ly/3GJyTmW
 https://prpr.96110.cn.com/aff.php?aff=9530
 
 3）<b>[TapFog](https://bit.ly/3uDY8lT)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。注册即可白嫖体验，好用再买不迟。</p>
 
 https://bit.ly/3uDY8lT
 
