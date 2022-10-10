@@ -15,10 +15,10 @@ https://bit.ly/3qkcDZw   (身在大陆，由此进国内站，*如果身在港�
 
 https://bit.ly/3qYtbq7 （身在港澳台，海外，由此进国际站，*如果身在大陆会连接不上*）
 
-2）<b>[FastLink](https://bit.ly/3y7Uy5R)</b>
+2）<b>[FastLink](https://bit.ly/3RNB9gU)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm</p>
 
-https://bit.ly/3y7Uy5R
+https://bit.ly/3RNB9gU
 
 3）<b>[Gatern](https://bit.ly/3MgvUDy)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高级专线IPLC大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，巴基斯坦，以色列，阿联酋，瑞典，波兰，丹麦，立陶宛，拉脱维亚，瑞士，罗马尼亚，新西兰，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁，有流量包套餐。</p>
