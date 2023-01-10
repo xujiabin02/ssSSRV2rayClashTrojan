@@ -82,7 +82,7 @@ http://bit.ly/3WWxDnC
    
    （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
    
- <b>[国际信用卡开户管理平台]()</b>
+<b>[国际信用卡开户管理平台]()</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;可开虚拟国际信用卡，一分钟发卡，即开即用，无需实名，支持USDT支付。适合需要支付外币又想要匿名。同时还可以购买 GoogleVoice 号码、谷歌邮箱， esim，苹果APPID，代开telegram会员等多种服务。</p>
 
    https://t.me/idbao_bot?start=gilnop0789
