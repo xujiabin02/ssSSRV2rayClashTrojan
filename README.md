@@ -91,14 +91,14 @@ https://bit.ly/3PrYp3N
 
 机场再多也不是100%保险，如果想不受特殊时期的影响，完全避免机场跑路，节点炸掉，机场被打等等风险，推荐自备一张境外流量卡，可能不是最实惠的，不是最适合你的，但却是你需要的，某宝上直接购买：
 
-<b>[澳门电信一卡两号红蓝卡]()</b>
+<b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/ssSSRV2rayClashTrojan)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合在中国大陆，中国香港，中国澳门三地，打电话，发短信，合理合法合规访问外网，可做流量卡直接翻墙，但是需实名制。</p>
 
    （Easy+预付卡，俗称红卡）https://www.1888.com.mo/help/detail?tabCode=EASYPLUS
    
    （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
    
-<b>[国际虚拟信用卡开户管理 TG 机器人]()</b>
+<b>[国际虚拟信用卡开户管理 TG 机器人](https://github.com/wantToDoSomeThing/ssSSRV2rayClashTrojan)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;可开虚拟国际信用卡，一分钟发卡，即开即用，无需实名，支持USDT支付。随用随充，适合需要支付外币又想要匿名。同时还可以购买 GoogleVoice 号码、谷歌邮箱， esim，苹果APPID，代开telegram会员等多种服务。实测 美团|微信|Telegram Premium|Apple store|Google pay|Google play|亚马逊购物|PayPal美区|TikTo|UltraMobile|快连VPN|Youtube|奈飞|CloudFlare|微软云| 阿里云国际站|腾讯云国际站|宝塔国际站|亚马逊云| Linode|数字海洋|OVH|搬瓦工，均可正常支付。</p>
 
    http://bit.ly/3HNgRCo
