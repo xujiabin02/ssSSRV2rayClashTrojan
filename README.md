@@ -20,10 +20,10 @@ https://bit.ly/3qYtbq7  （国际站————身在港澳台，海外，由�
 
 http://bit.ly/3yukEPs
 
-3）<b>[SpeedCat](https://speedcat-aff.com/auth/register?code=7TiK)</b>
+3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free </p>
 
-https://speedcat-aff.com/auth/register?code=7TiK
+https://bit.ly/3JCIZJn
 
 4）<b>[TapFog](https://bit.ly/3uDY8lT)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。注册即可白嫖体验，好用再买不迟。</p>
