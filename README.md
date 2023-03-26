@@ -76,7 +76,7 @@ http://bit.ly/3DnB5Qp
 http://bit.ly/3lLsuS7
 
 7）<b>[CC云加速](https://ccy01.cloud/#/register?code=QOAP1Frs)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全国内地中转隧道专线大机场，不限制设备数量，秒开4k、支持8K，流媒体解锁，高SLA可用性保障，节点包括：港，台，美，日，新加坡，德国，英国，韩国，加拿大，越南，荷兰，印度，澳大利亚，土耳其等。新用户注册即免费试用 1GB流量，更有新购套餐 8 折 优惠， 优惠码：ccjsq </p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中国大陆中转隧道专线大机场，不限制设备数量，秒开4k、支持8K，视频流畅不卡顿，流媒体解锁，高SLA可用性保障，节点包括：港，台，美，日，新加坡，德国，英国，韩国，加拿大，越南，荷兰，印度，澳大利亚，土耳其等地区。新用户注册即免费试用 1GB流量，更有新购套餐 8 折优惠，优惠码：ccjsq </p>
 
 https://bit.ly/3LRM1L6
 
