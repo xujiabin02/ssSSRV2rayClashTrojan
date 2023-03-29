@@ -86,7 +86,7 @@ https://bit.ly/3LRM1L6
 所谓初级的含义：便宜是第一位的，平时的时候也能用，速度，流媒体解锁也能保证一部分，但是遇到重大敏感的日期，或者不明原因，也可能用不了，适合平时偶尔用用，需求不大的用户。
 
 1）<b>[FScloud](https://dash.996cloud.top/#/register?code=mAMmbdAY)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可用 1元优惠券，相当于可以免费白嫖一个月，优惠码：fscloud</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量</p>
 
 http://bit.ly/3ZguUWG
 
