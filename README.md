@@ -60,10 +60,10 @@ https://bit.ly/3ugbftg
 
 https://bit.ly/3MDu68f
 
-3）<b>[EFCloud](https://bit.ly/3wHzCR7)</b>
+3）<b>[EFCloud](https://invite.efshop.cc/#/register?code=RIJNherL)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，月付低至 1 元，也有5元100G一次性永久流量包套餐，相当优惠。</p>
 
-https://bit.ly/3wHzCR7
+http://bit.ly/40UFHqI
 
 4）<b>[Element](https://bit.ly/3PrYp3N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆BGP中继线路，三网优化高端机场，SS协议加密传输，月最低 10 块钱，节点包括，港，台，日，新，美，德，英。流媒体解锁，稳定高速。</p>
