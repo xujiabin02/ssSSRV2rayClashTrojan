@@ -21,10 +21,10 @@ http://bit.ly/3yukEPs
 
 https://bit.ly/3JCIZJn
 
-4）<b>[TapFog](https://bit.ly/3uDY8lT)</b>
+4）<b>[TapFog](https://www.tapfog.io/#/register?code=N5I4fc2k)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。注册即可白嫖体验，好用再买不迟。</p>
 
-https://bit.ly/3uDY8lT
+https://bit.ly/3NlrqiZ
 
 5）<b>[猫熊网络加速器](https://bit.ly/3GJyTmW)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
