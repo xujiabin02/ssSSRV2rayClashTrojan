@@ -69,7 +69,7 @@ https://bit.ly/44Md9lw
 6）<b>[FreeGecko](https://freegecko.com/index.php#/register?code=9ZWlybzc)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;主打台北CN2热銷精品网络: 原生IP、台区解锁、ChatGPT服务加速、Netflix无限看。iPLC游戏专线。当然还有，香港，美国，日本，新加坡提供专属客户端。现在购买可享受 8 折优惠，优惠码：IUQ3pu2c</p>
 
-https://bit.ly/3KjbifV
+https://freegecko.com/index.php#/register?code=9ZWlybzc
 
 **************************************************  中  级  机  场  区  *******************************************************
 **************************************************  初  级  机  场  区  *******************************************************
