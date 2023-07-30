@@ -67,7 +67,7 @@ https://bit.ly/3KhASBG
 https://bit.ly/44Md9lw
 
 6）<b>[Lime青柠](https://limeis.best/#/register?code=Td2issDm)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高级大机场，有不限时纯流量套餐，节点包括：港，台，美，新加坡，日本，韩国，印度，德国。土耳其，南极洲。流媒体应解尽解，不限速，不限制设备数量。现在注册即可免费享受 3 G流量试用。c</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高级大机场，有不限时纯流量套餐，节点包括：港，台，美，新加坡，日本，韩国，印度，德国。土耳其，南极洲。流媒体应解尽解，不限速，不限制设备数量。现在注册即可免费享受 3 G流量试用。</p>
 
 https://bit.ly/3QiInw5
 
