@@ -66,10 +66,10 @@ https://bit.ly/3KhASBG
 
 https://bit.ly/44Md9lw
 
-6）<b>[FreeGecko](https://freegecko.com/index.php#/register?code=9ZWlybzc)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;主打台北CN2热銷精品网络: 原生IP、台区解锁、ChatGPT服务加速、Netflix无限看。iPLC游戏专线。当然还有，香港，美国，日本，新加坡提供专属客户端。现在购买可享受 8 折优惠，优惠码：IUQ3pu2c</p>
+6）<b>[Lime青柠](https://limeis.best/#/register?code=Td2issDm)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高级大机场，有不限时纯流量套餐，节点包括：港，台，美，新加坡，日本，韩国，印度，德国。土耳其，南极洲。流媒体应解尽解，不限速，不限制设备数量。现在注册即可免费享受 3 G流量试用。c</p>
 
-https://freegecko.com/index.php#/register?code=9ZWlybzc
+https://bit.ly/3QiInw5
 
 **************************************************  中  级  机  场  区  *******************************************************
 **************************************************  初  级  机  场  区  *******************************************************
