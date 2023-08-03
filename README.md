@@ -108,7 +108,14 @@ https://bit.ly/3Dw6HmN
    （Easy+预付卡，俗称红卡）https://www.1888.com.mo/help/detail?tabCode=EASYPLUS
    
    （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
+
+
+<b>[苹果商店美区账号分享]</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
+
+    npvqpjfn@outlook.com    1{D1@79dzLC+~~i]
   
+    wes285207@163.com       We7&dCZZk.pfV3}!
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
