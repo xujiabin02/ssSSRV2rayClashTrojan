@@ -102,7 +102,7 @@ https://bit.ly/3Dw6HmN
 
 机场再多也不是100%保险，如果想不受特殊时期的影响，完全避免机场跑路，节点炸掉，机场被打等等风险，推荐自备一张境外流量卡，可能不是最实惠的，不是最适合你的，但却是你需要的，某宝上直接购买：
 
-<b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/ssSSRV2rayClashTrojan)</b>
+<b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合在中国大陆，中国香港，中国澳门三地，打电话，发短信，合理合法合规访问外网，可做流量卡直接翻墙，但是需实名制。</p>
 
    （Easy+预付卡，俗称红卡）https://www.1888.com.mo/help/detail?tabCode=EASYPLUS
@@ -110,7 +110,7 @@ https://bit.ly/3Dw6HmN
    （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
 
 
-<b>[苹果商店美区账号分享]</b>
+<b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
     npvqpjfn@outlook.com    1{D1@79dzLC+~~i]
