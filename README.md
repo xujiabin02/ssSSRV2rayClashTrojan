@@ -41,18 +41,13 @@
 
 👉 https://bit.ly/458hcbU
 
-8）<b>[Wallless](https://portal.wl-site5.com/#/register?code=yyBgJJMx)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;长期走中高端路线的全中转及IPLC线路机场，原生IP，保证Netflix,Abematv,HULU,TVB等各类区域限定网站无压力使用，无视封锁，在本地网络条件良好的情况下可以加速游戏。支持试用，所有套餐节点全部相同，无暗坑无增值付费，有不限时套餐（可提供企业定制服务）。节点包括：香港、台湾、日本、美国、新加坡、俄罗斯、印度等地区。注册即可免费试用 1 小时，免费体验后再买。</p>
-
-👉 https://bit.ly/45jZhyz
-
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
 
 所谓中级的含义：用户众多，稳定，高速，支持地区多，性价比高，敏感时期，特殊时期偶有影响但几乎不影响正常使用。
 
 1）<b>[泡泡Dog](https://www.paopao.dog/index.php#/register?code=J8Q5PsSG)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议多地入口跨境部分IEPL专线，节点包括：香港|日本|新加坡|美国|台湾|印度|英国|韩国|巴西|阿根廷|土耳其|墨西哥|马拉西亚等，独家技术解锁NNetflix TVB 動畫瘋 AbemaTV DMM Hulu HBO-Go HBO-MAX Disney+ Amazon Prime Video FOX DAZN等流媒体，敏感时期也能稳定上网，平时谁都能跑满 晚高峰宽带足，丰富的宽带冗余无视任何高峰期。提供小火箭美区商店账号共享。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议多地入口跨境部分IEPL专线，节点包括：香港|日本|新加坡|美国|台湾|印度|英国|韩国|巴西|阿根廷|土耳其|墨西哥|马拉西亚等，独家技术解锁NNetflix TVB 動畫瘋 AbemaTV DMM Hulu HBO-Go HBO-MAX Disney+ Amazon Prime Video FOX DAZN等流媒体，敏感时期也能稳定上网，平时谁都能跑满 晚高峰宽带足，丰富的宽带冗余无视任何高峰期。提供小火箭美区商店账号共享。全天不同时段节点采用不同倍率，最高 1 倍，最低可至 0.2 倍</p>
 
 👉 https://bit.ly/3QwEGmC
 
@@ -82,7 +77,7 @@
 👉 https://bit.ly/3mzxklV
 
 7）<b>[抖云加速](https://douyun.us/#/register?code=BwJyTE2t)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS隧道加密多年老店大机场，节点地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。还有九折优惠码：douyun666</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS隧道加密 5 年老店大机场，节点地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。还有九折优惠码：douyun666</p>
 
 👉 https://bit.ly/3N24JjC
 
@@ -125,7 +120,7 @@
 
  >    账号：`npvqpjfn@outlook.com`   密码：`1{D1@79dzLC+~~i]`
 
- >    账号：`wes285207@163.com`       密码：`+'B)r[%2+5oa2qHD`
+ >    账号：`wes285207@163.com`       密码：`$6b+~[uL?wDn/2Sb`
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
